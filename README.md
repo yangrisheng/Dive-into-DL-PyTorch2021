@@ -4,4 +4,4 @@
 目前还在注释中。有一起搞得可以联系我呀。一起努力。
 共勉！
 
-![WechatIMG1](https://user-images.githubusercontent.com/39787375/130817390-e66f9001-a80a-4bc4-86e1-83a50f4f60a5.jpeg weight='375')
+微信联系方式: https://user-images.githubusercontent.com/39787375/130817390-e66f9001-a80a-4bc4-86e1-83a50f4f60a5.jpeg
